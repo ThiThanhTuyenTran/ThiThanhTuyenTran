@@ -10,6 +10,7 @@
 - 🌱 I’m currently Studying **PATHWAY**
 
 <br />
+## 📫 My hobbies is: reading love novel, writing blog, long trip.  
 
 ## 📫 How to FIND me:
 
