@@ -9,6 +9,7 @@
 - ✍ I used to study Medicine at Can Tho University of medicine and pharmacy.
 - 🌱 I’m currently Studying **PATHWAY**
 
+
 <br />
 ## 📫 My hobbies is: reading love novel, writing blog, long trip.  
 
